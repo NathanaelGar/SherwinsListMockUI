@@ -1,3 +1,0 @@
-﻿# SherwinsListMockUI
- yeet
-# SherwinsListMockUI
